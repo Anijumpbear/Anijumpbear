@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anijumpbear
+- 👋 Hi, I’m @Anijumpbear B站ID:[@Kizika](https://space.bilibili.com/672328094/)
 - 👀 B站关注[@嘉然今天吃什么](https://space.bilibili.com/672328094/)
 
 
